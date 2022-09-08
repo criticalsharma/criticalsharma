@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Puneet
+- 👀 I’m interested in problem solving
+- 🌱 I’m currently learning web3 and exploring cryptos
+- 💞️ I’m looking to collaborate on various projects
+- 📫 How to reach me at +91-8813994343
